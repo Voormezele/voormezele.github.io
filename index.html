@@ -11,6 +11,10 @@ subtext: Een verborgen parel van de Westhoek en een dorp dat veel te bieden heef
     <div class="announcement">
         <h4><a href="{{ site.url }}{{ announcement.link }}">{{ announcement.title }}</a></h4>
         <p>{{ announcement.description|markdownify }}</p>
+
+        {% if announcement.image %}
+        <img src="{{ announcement.image }}" alt="image {{ announcement.title }}" />
+        {% endif %}
     </div>
     {% endfor %}
 </div>
