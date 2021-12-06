@@ -12,33 +12,28 @@ In de kerk staan er dan een 500-tal kerststallen tentoon, grote, kleine, mini's,
 Op het dorp zelf staan er langs de straten minstens een 30-tal kerststallen en -taferelen opgesteld.
 Er hangt een echte kerstsfeer op het dorp en rond de kerk
 
-## Tentoonstelling 2018
+## Tentoonstelling 2021
 
+### Kerst in ons dopr
 
-Deze 24ste Kerststallenexpo wil bij het einde van "den grooten oorlog" de engelen naar voor brengen. Waren zij niet de vredesbrengers bij de Kerststallen en zongen zij niet: “Vrede op aarde aan de mensen van goede wil”.
-Engelen zijn zuivere geesten, bezitten een uitgebreide kennis, hebben een vrije wil en hebben grote macht om die wil uit te voeren. Zij loven en dienen God en staan de mensen bij. Vandaar het geloof dat iedereen een engelbewaarder heeft. <br />
-Engel komt van het Griekse woord “angelos” en betekent “bode”. Het is een bovennatuurlijk wezen dat God vertegenwoordigt en is vooral bekend bij de Joden, het Christendom en de Islam. Aanvankelijk voorgesteld als een naakte jongeling. In de 9de eeuw werd de engel algemeen als een gevleugelde figuur in lang gewaad naar voor gebracht. In de mystieke context zijn er veel godsdiensten die het over engelen “boodschappers” hebben. In onze eucharistie komen deze ook voor in de prefatie en in de “sanctus”. Ook onze engelbewaarders worden op veel prentjes voorgesteld.<br />
-In de expo zullen de engelfiguren hier en daar centraal staan en de leerlingen van onze Vrije Basisschool “Het Wij-land” hebben hieraan mee gewerkt. Het is en blijft wel een Kerststallententoonstelling. 
-Ieder jaar zijn er nieuwe Kerststallen en worden er Kerstkunstwerken geëxposeerd, dit jaar o.a. van Rik Ryon. De werkgroep Kerstexpo zorgt steeds voor een mooie moderne opschik. Kunstvol en creatief. Men wil ook aan de bezoekers iets meegeven dit jaar “Vrede aan de mensen van goede wil”.
+De kerk is mooi geschilderd! De data om klaar te zijn met de werken werden gerespecteerd zodat de kerstexpo zou kunnen worden opgesteld…
+Helaas, corona deed alles weer in duigen vallen! Dit jaar hoopten we de 25ste editie te laten doorgaan, die reeds plaats zou hebben gehad in 2020.<br />
+Om de kerststal met de kerstgedachte levendig te houden, biedt het kerststallencomité, net zoals vorig jaar, een alternatief aan. In ons Voormezeels “kerstdorp” is heel wat moois te zien zowel overdag of ’s avonds.
 
+### Binnen in de kerk
 
-Op zaterdag 8 december wordt een actieve kerstwandeling “En waar de sterre bleef stille staan” georganiseerd. Verschillende groepen trekken vanaf 14u30 om het half uur door de straten van Voormezele. Op verschillende locaties kunnen de deelnemers genieten van toneel, dans, zang, eigen creatieve inbreng, …  De slotactiviteit van iedere groep gebeurt in de kerk en gaat door als  officiële opening van de Kerststallenexpo. De expo is echter maar voor het publiek toegankelijk vanaf zondag 9 december!
+Onze parochiekerk, O.L. Vrouwekerk, werd helemaal opgefrist met mooie kleuren en ziet er uit als een frisse, blinkende parel. Deze kan bewonderd worden als men op zoek gaat naar de opgestelde kerkkerststal en andere opgestelde beelden. Een kleurrijk glasraam met kersttafereel in de linkerbeuk is meer dan de moeite waard om te bezichtigen. In de glazen tentoonstellingskasten, zijn er kerstprentkaarten en ministalletjes te bewonderen.
 
+### Buiten de kerk
 
-In de najaaragenda van De Krant van West-Vlaanderen staat het volgende over de Voormezeelse Kerstexpo:
-“Kunstig, zelfgemaakt, mini en levensgroot. In Voormezele kan je Kerststallen in alle mogelijke vormen bewonderen. Leve de Kerststal! “
-In scrabble is het woord goed voor 183 punten, maar de Kerststallententoonstelling is niet alleen in dit spel een succes. In Voormezele vindt dit jaar opnieuw de tweejaarlijkse Kerststallententoonstelling plaats. In de Onze-Lieve-Vrouwekerk kan je meer dan 500 Kerststallen bewonderen: grote, kleine, mini’s uit alle mogelijke landen, culturen en werelddelen. In het dorp zelf staan er langs de straten minstens een 30-tal Kerststallen en -taferelen opgesteld.
+Aan de toren van onze prachtige, statige kerk hangt een mooie, grote ster. Binnenkort wordt ze weer omgetoverd tot een “staartster” en zal ze weer schitteren van dichtbij en veraf. De ster werd jaren geleden gemaakt door Louis Man. Een werkkracht van het kerstexpoteam, die ons, helaas veel te vroeg, ontvallen is.<br />
+Aan de ingang van de kerk, aan het begin van het wandelpad, staat binnenkort ook terug een soort ereboog te pronken. Tussen 2 rijzige kerstbomen, wordt een ijzeren frame opgebouwd met bovenaan, in het midden, een metalen kerststal. Het dennengroen errond zorgt voor een mooi geheel. Daarnaast, rond de kerkhofmuur, staan ook nog metalen kerstbomen opgesteld, allemaal voorzien van kerstverlichting. Ook deze kerstdecoratie is van de hand van Louis en zorgt voor de kerstsfeer in ons dorp. Deze mooie kerstverlichting is ieder jaar weer een eerbetoon aan hem en iets waarvan iedereen telkens weer kan genieten wanneer de avond valt. Hopelijk draagt ook stad Ieper haar steentje weer bij voor de kerstverlichting.
+De etalage van de vroeger dorpswinkel, aan de overkant van de kerk verandert ook in kerstsfeer. Een 20-tal stallen uit de collectie van W.Desodt worden opgesteld. Een mini-expo als het ware. Hiervoor wordt er een selectie gemaakt uit zijn grote verzameling.
 
+### Kerststallen in en rond het dorp
 
-Genieten van al deze pracht kan van zondag 9 tot en met maandag 17 december aanstaande. <br />
-Op zondag van 10u30 tot 12u en van 14u tot 18 u. In de weekdagen van 14u tot 17 u.
+Door de jaren heen, zetten heel wat dorpsbewoners een stal met beelden of een kerstafbeelding buiten aan hun huis: aan de voorgevel, in hun voortuin, … in het dorp zelf, maar ook ver erbuiten aan de dorpsrand. Er zitten echt creatieve en originele bij. Ondertussen staan er al een 55 tal verspreid over het dorp, aan de dorpsrand, zelf tot in St-Elooi. Wanneer de adventsperiode is ingezet, worden de bewoners uitgenodigd om hun kerststal buiten te zetten, maar al heel veel Voormezelenaars doen dit spontaan. Ook dit jaar zal dit weer gebeuren. Bewoners die geen stal hebben, mogen ook een afbeelding van een kerststal aan het raam hangen of een kerstkrans aan de deur hangen. We zullen de mensen aanmoedigen om op stap te gaan om van al dit moois te genieten. Ze kunnen zelf kerststallenwandelingen maken in en rond het dorp Voormezele.
 
-
-Alle info:<br />
-Wilfried Desodt, Voormezele-Dorp 28, 8902 Voormezele-Ieper, 057/20.13.88<br />
-emailadres: nele.desodt@hotmail.com
-
-
-<div style="text-align: center; margin: 100px 0">
-    <img src="./public/assets/affiche-kerststallen-2018.jpg" alt="Affiche kerstallen 2018" />
-</div>
+Wie van al dit fraais wil genieten, is welkom in het “kerstdorp” van zaterdag 12 december tem zondag 3 januari. Een uitstapje dat zeker de moeite is om te doen en een manier om de kerstgedachte nog meer dichter bij de mensen te brengen.
+Openingsuren van de kerk: in de weekdagen van 14u tot 16u, op zondag van 14u tot 17u.
+Info bij: Nele Desodt 0476/65 26 83 of Wilfried Desodt 057/20 13 88
